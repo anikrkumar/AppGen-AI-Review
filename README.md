@@ -1,4 +1,4 @@
-# AppGen AI Review‐Create Unlimited Mobile Apps and Sell It High!
+# AppGen AI Review‐Create Unlimited Mobile Apps and Sell It High! 
 
 
 ![appgenai-review](https://github.com/user-attachments/assets/635e59c0-57ce-42d5-8ac8-f436ab05baa7)

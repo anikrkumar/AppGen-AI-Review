@@ -18,7 +18,7 @@ AppGen AI is an innovative app creation platform powered by artificial intellige
 
 * **Front-End Price:** $17 (One-time price)
 
-* **Available Coupon:** Apply “APPGEN4” For  OFF!
+* **Available Coupon:** Apply “APPGEN4” For $4 OFF!
 
 * **Official Website:** [Click Here To Visit Salespage](https://bit.ly/3Zd4FCt)
 
